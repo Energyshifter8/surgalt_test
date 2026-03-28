@@ -1,4 +1,5 @@
 nom
+tuuugu ah surgaltaa zaaje
 huzur
 shuuge
 amraa
