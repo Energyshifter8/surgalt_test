@@ -10,3 +10,4 @@ temuulen
 :))))
 :'(
 sysco
+uchigdr mni naiziin tursun udur bolsoo
