@@ -6,7 +6,6 @@ gutal
 chiher
 ilbe
 anand
-----------
-temu
-react
-
+temuulen
+:))))
+:'(
