@@ -9,5 +9,5 @@ anand
 temuulen
 :))))
 :'(
-sysco
+syscodada
 uchigdr mni naiziin tursun udur bolsoo
