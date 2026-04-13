@@ -10,3 +10,7 @@ anand
 temuulen
 :))))
 :'(
+syscodada
+uchigdr mni naiziin tursun udur bolsoo
+:'
+daad(
